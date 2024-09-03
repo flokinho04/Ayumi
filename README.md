@@ -10,6 +10,8 @@
  
   - quero me formar em arquitetura
  
+  - hobbys: croche,volei, pinturas, culinarias.
+ 
  voce pode entrar em contato comigo:email
 
 00001116127854sp@al.educacao.sp.gov.br
